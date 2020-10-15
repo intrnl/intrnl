@@ -1,3 +1,5 @@
-Hello! I like to poke and build random stuff on my free time.
-
-Most of my projects tends to be small, "lightweight" libraries that works as a sort of exercise into certain concepts.
+<p align='center'>
+  <samp>Hello!</samp>
+  <br />
+  <samp>I like to build stuff on my free time.</samp>
+</p>

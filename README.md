@@ -1,2 +1,2 @@
 
-> Do you like to draw with crayons? I'm not very good at it, but it doesn't matter, it's the fun of doing it that's important. Now, I wouldn't have made that if I just thought about it. No matter how anybody says it is, it feels good to have made something. The best thing is that each person's would be different. In a way, you've already won in this world because you're the only one who can be you, and that's the way it's supposed to be.
+> Do you like to draw with crayons? I do, but I'm not very good at it, but it doesn't matter, it's just the fun of doing it that's important. Now, I wouldn't have made that if I'd just been thinking about it, just pretending about it, it wouldn't be there. No matter how anybody says it is, it feels good to have made something.
